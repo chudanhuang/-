@@ -10,23 +10,4 @@
 
 
 
-read-normal-img
-
-
-
-
-
-read-normal-img
-
-
-
-
-
-read-normal-img
-
-
-
-
-
-read-normal-img
 
